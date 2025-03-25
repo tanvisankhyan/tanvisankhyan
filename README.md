@@ -20,6 +20,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me **tanvisankhyan7@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1359grQsGVm-EDSi9db6fG7O_AMb7a_hd/view?usp=sharing](https://drive.google.com/file/d/1359grQsGVm-EDSi9db6fG7O_AMb7a_hd/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zQF2jbRZSgNpNvtr7Psb3zRgxUxNa4Uu/view?usp=sharing](CV)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
