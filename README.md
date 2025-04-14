@@ -19,8 +19,9 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **tanvisankhyan7@gmail.com**
 
+-  Know about my experiences [Résumé](https://drive.google.com/file/d/1zQF2jbRZSgNpNvtr7Psb3zRgxUxNa4Uu/view?usp=sharing)
 
-- 📄 Know about my experiences [Résumé](https://drive.google.com/file/d/1zQF2jbRZSgNpNvtr7Psb3zRgxUxNa4Uu/view?usp=sharing)
+-  Portfolio [Website]([https://drive.google.com/file/d/1zQF2jbRZSgNpNvtr7Psb3zRgxUxNa4Uu/view?usp=sharing](https://www.tanvisankhyan.me/))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
